@@ -1,0 +1,1 @@
+# Information on npc 2
